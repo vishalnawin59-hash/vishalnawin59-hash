@@ -1,17 +1,15 @@
 Email Me 👉 ✉️ **vishalnawin59@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Enter your project info here
-- 🌱 **I’m currently learning:** Enter your tech here
-- 👯 **I’m looking to collaborate on:** Enter your project name and info
-- 🤔 **I’m looking for help with:** Your project here
+- 🔭 **I’m currently working on:** Spark_X
+- 🌱 **I’m currently learning:** Google Project Management
+- 👯 **I’m looking to collaborate on:** 
+- 🤔 **I’m looking for help with:** Spark_X
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** vishalnawin59@gmail.com
 - 😄 **Pronouns:** Vishal Nawin D
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
-## 🔗 I am a Content Creator. 😊😊
-
-Stay updated with the latest tutorials and projects by subscribing to my YouTube channel and following on Instagram, Facebook and Twitter.
+## 🔗 I am a Tech Enthusiast. 😊
 
 [![](https://visitcount.itsvg.in/api?id=alamimran613&icon=1&color=4)](https://visitcount.itsvg.in)
 
